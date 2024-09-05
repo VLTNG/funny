@@ -1,2 +1,2 @@
-# funny
+# FUNFUN
 notread
